@@ -1,1 +1,0 @@
-petalo de rosa
